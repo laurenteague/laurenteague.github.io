@@ -1,0 +1,12 @@
+---
+layout: default
+---	
+
+{% for post in site.posts limit:1 %}
+	<h1><a href="{{ post.url | prepend: site.baseurl }}">{{ post.title }}</a></h1>
+	<h3>Posted on {{ post.date | date: "%B %-d, %Y" }}</h3>
+	<section class="post">
+  	{{ post.content }}
+  </section>
+{% endfor %}
+

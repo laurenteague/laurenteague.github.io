@@ -1,0 +1,173 @@
+---
+layout: post
+title:  "Davy — I mean, Daisy"
+date:   2018-12-09 15:44:57 -0500
+categories: story
+---
+Hi, Daisy! How was school today?” Daisy’s mom had been asking that same question every day since school started back last month. Usually, Daisy answered, “Okay,” or even, “Great!” Sometimes she threw in a “Fantabulous!”
+
+But today she said, “Awful. I’m super mad at Davy. He kept bothering me.” She paused and waited for her mom to say, “No!” Or even “That IS awful!” Or throw in an, “I’m going to call Mrs. Grayson the minute we get home!”
+
+But all her mom said was, “Oh?”
+
+“Yes! Mrs. Grayson moved our seats and now he’s next to me and he keeps trying to get me to talk when we are supposed to be working and he’s always getting out of his seat AND he kicks the chair legs!” 
+
+“It sounds like he has a lot of energy,” her mom admitted. “Maybe he has a tough time dealing with it sometimes. That must be hard. Poor Davy.”
+
+Only Daisy thought she said, “Poor Daisy.” She nodded. “Poor me. It is hard. He’s so distracting.”
+
+“Oh. Well, yes, I am sorry that you’re getting distracted. But I actually said, ‘Poor Davy,’” her mom explained.
+
+“Poor Davy!?” Daisy repeated with wide eyes. “Why Davy?”
+
+“Well, think of how it must feel to have a hard time sitting still.” She smiled at Daisy in the mirror. “Maybe if you knew what he goes through every day, some of that anger might go away.”
+
+Daisy didn’t want to argue, but she wasn’t so sure her mom was right about this.  Daisy never had to be reminded to sit in her seat or to get back to her work. It wasn’t hard at all.
+
+Daisy was still mad at Davy the rest of the afternoon and evening right up until bedtime. As her mom tucked her in, Daisy said, “Can you please ask Mrs. Grayson to move my seat back? I don’t want to sit next to Distracting Davy anymore.” 
+
+“We’ll see…” her mom answered in the voice that actually meant, “Nope.”
+
+“But for now, remember what I said and try to imagine what it would be like to have all that energy. It might change how you feel. Night!”
+
+It took Daisy awhile to fall asleep because she had so many upset thoughts to listen to. “Tomorrow means more school and more sitting next to Davy and more chair kicking. And more talking. And more getting out of his seat. Why can’t he just do what he’s supposed to? Like me.” She remembered what her mom said, but when she tried to imagine having extra energy, she thought, “I could still do it. I could just sit and listen and finish my work. It wouldn’t be that hard being like Davy….” and with that last thought, she fell asleep.
+
+---
+
+The next morning, Daisy walked into her classroom and saw Davy already sitting in his seat. “Oh, right.” She sighed to herself. “I guess I better get ready for a morning of Distracting Davy. He probably hasn’t even started his morning work yet.” She peeked at his paper and saw that Davy was already almost finished with the entire page. Huh. That was...different. 
+
+Another different thing seemed to be Daisy’s chair. It was a little harder than usual. It was really hard, actually. Elgh. And why did the insides of her legs feel so itchy? Daisy reminded herself she had a whole page to get started on and decided to ignore the hard chair and the itchy legs. She stared at her paper in front of her and tried to focus. But ignoring them didn’t work. The chair only seemed to get harder and her legs only seemed to feel itchier and twitchier. She tried swinging them a tiny bit. That felt better. Plus, when her heels hit the bottom of her chair legs, it made a fun little bump. Bump, bump, bump. Daisy wrinkled her nose with delight. Just by kicking her chair legs, she made her whole body jump all the way up to her hair. Oh, fun, and she could even make the desk and her pencil jump. Bump! Bump! Bump!
+
+Davy looked over at her with an annoyed look. “What?” Daisy whispered. He didn’t say anything but looked down at her swinging legs. Daisy decided to take a break. Davy had that look of someone about to raise their hand with a tattle. Her legs immediately went back to feeling like they wanted to dance or run off of their own. And her chair felt harder than ever. She slowly tried to stand up on one leg with her knee still on the seat.
+
+“Daisy, have a seat!” Called out Mrs. Grayson. Daisy felt her cheeks get hot. She sat down with a thump and was determined to sit there for the rest of the morning. Even if the chair felt like sitting on a rock. Or a cliff. A rocky, lumpy cliff. Maybe it wasn’t even the same chair! Maybe someone switched it because it was the hardest worst chair ever and now they had Daisy’s nice, regular chair. Daisy stood up to check. Oh. Okay, so it was the same chair. There was that little black mark from when she had dropped a marker last week. 
+
+“Daisy, stay in your seat for a few more minutes until that work is done and then we’ll move to the carpet for a story,” her teacher reminded her.
+
+Daisy’s throat felt tight as she sat back down. She hadn’t even realized she had been standing again.
+
+The carpet also felt strange and non-cozy this morning. Daisy couldn’t help wiggling a bit. Which was why she got two Looks from Mrs. Grayson. And another Look when she asked someone near her a question. Not to mention a “Daisy, stop tapping your foot and listen to the story, please.”
+
+This was turning out to be a rough morning and it was taking so much longer than normal. When it was time to go back to her desk for math fact practice, Daisy dreaded that chair. “This is silly,” she told herself. “Just going to sit and follow directions. Like I always do. It will be easy.”
+
+She sat down and picked up her pencil and made it through a few addition problems when she dropped her pencil. As she picked it up, she noticed Davy’s shoes. Ooh, he was wearing yellow shoe laces. No...they were lime green. No...yellow? It didn’t matter. Definitely yellow. Probably. She better check. “Davy...” she whispered. He didn’t move. “Davy.” She said it a little louder. Still nothing. “Davyyyyyyy- Davy! What color are your laces? Yellow?” He definitely heard her this time. She could tell because he sighed and turned away from her as he finished the last problem. She frowned. That didn’t seem necessary. But also, maybe...familiar? Didn’t she do that to him yesterday? “Hey“ she was about to ask him why he was acting mad when Mrs. Grayson spoke up.
+
+“Davy- I mean Daisy-let’s hold off on talking until lunch. You need to hurry and finish that page. Davy, you’re doing an awesome job and working hard this morning!” Daisy felt her mouth open in surprise. What. Her teacher just called her Davy. And gave him a compliment about working hard! Distracting Davy!? But, come to think of it...Daisy realized that Mrs Grayson hadn’t reminded Davy to sit still or stay in his seat or stop talking. Not even once! But she had to remind Daisy…because Daisy was distracted today...and now Davy was getting mad… Wait a minute...Daisy tapped her pencil as she thought. She needed to talk to her friends as soon as possible. She just had to make it- Daisy checked the clock- 8 more minutes until lunch.
+
+ “Daisy, focus on your work!”  
+
+---
+
+As soon as Daisy and her friends got to their lunch table, she blurted out, “I switched places with Davy!”
+
+“But, you’re in the same seats as yesterday.” June said.
+
+“No, I’m acting like him.” Daisy explained.
+
+Kate gasped. “You switched bodies? That’s so cool! I didn’t know that could happen in real life!” Kate leaned in closer. “Davy?”
+
+Daisy sighed. “No, it’s still me, I’m just acting like him.”
+
+“Oh, I get it,” said Roxi. “Like the time the Stewart twins switched places and we couldn’t figure out why Carly was talking louder and didn’t know where to sit but then we found out it really Alice?”
+
+“But Daisy and Davy don’t look like each other at all!” said June. 
+
+“Oh, yeah,” admitted Kate. 
+
+“Their names sound alike,” chimed in Roxi. “Does that matter?”
+
+They all turned to look at Daisy. She shrugged.
+
+“I don’t really know, but he’s acting like me and I’m acting like him. I keep getting in trouble for moving and talking but he’s getting all his work done and just sitting there! And he’s getting mad at me.”
+
+“Yeah, that is backwards. Right? “Roxi said. “Weren’t you mad at him yesterday for talking to you?”
+
+“Yes!” Said Daisy. “I was mad at him all day and even when I was trying to fall asleep!”
+
+“Uh oh,”said Kate. “When you were falling asleep? Are you sure it was while you were falling asleep?” Kate said the words “sure” and “falling asleep” very slowly and clearly.
+
+“Yeah…it that bad?” 
+
+“Do you remember- this is important- do you remember the very last thing you thought about?”
+
+“Um, I think I tried to imagine what it would be like to be like Davy.”
+
+“And did you start feeling different as soon as you woke up?”
+
+“I guess so,” Daisy said.
+
+Kate nodded like she had been expecting that answer. “Well, you made a wish or something. That’s what happens in movies and books. The last thing you think about, sometimes it becomes a wish and comes true in the morning.” She calmly went back to eating her lunch.
+
+“Really?!” Daisy, on the other hand, was not feeling calm at all. “What do I do?!”
+
+“Oh, it’s totally fine, don’t worry. You do have to spend the whole day with your wish coming true, though. Just make sure that when you are about to fall asleep that you wish to be yourself again- and then in the morning, that wish comes true and everything is back to normal!”
+
+June, Roxi, and Daisy looked at each other. It did make sense. But tonight seemed like a very, very long time from now. With a very uncomfortable chair. And very active legs. Daisy let her head fall onto the table with a thump. “I have to spend the rest of the day getting in trouble and being Davy.”
+
+“It won’t be that bad,” June tried to make her feel better. “Just try harder not to talk or be wiggly.”
+
+“Yeah!” chimed in Roxi. “It’s not that hard!”
+
+---
+
+They were wrong. It was hard. Daisy knew a lot of the answers to her work but kept finding herself whispering to someone next to her. And her body just didn’t want to SIT anymore. She kept kicking her chair without meaning to and Davy was definitely giving her mad and grumpy looks. “Which doesn’t help at all,” She thought to herself. She began daydreaming about getting outside. Recess couldn’t come soon enough.
+
+
+When it was finally recess time, Daisy ran with June, Kate, and Roxi to the part of the field where the tallest clover flowers grew. Daisy only lasted a few minutes of tying the stems around each other when she jumped up. “Does anyone want to play tag?!” She asked.
+
+The others looked up. “But..we said yesterday that we were going to make the school record clover chain...” June said.
+
+“I know, I really wanted to help but..can we just run around real quick first?”
+
+“Wait!” Kate said. “What’s Davy doing?” They looked around.
+
+“There he is!” Daisy pointed. 
+
+“What is he doing? Is he…” Kate squinted. “He’s building a fort out of the mulch. That’s something you would do, Daisy.”
+
+“Yeah!” Roxi agreed. “He always runs around and plays tag or soccer or something!”
+
+“Come on, guys.” Said Kate, standing up and shaking the broken bits of leaves and stems off. 
+
+“This will have to wait until tomorrow. Let’s help Davy-oops, I mean, Daisy-get her energy out.”
+
+Later, Daisy had to admit, she had never had so much fun running as fast and as long as she could. As they headed back inside, she was relieved that her legs lost some of their itchiness. Only one hour of school left. 
+
+---
+
+“How was school today?” Her mom asked. 
+
+“It was okay.”
+
+Daisy looked out the window.  “But I’m sorry that I was so mad at Davy yesterday. I think you’re right- it’s hard having that much energy sometimes.”
+
+“Oh. Well. Okay!?” Her mom seemed surprised.  “That’s very… reflective of you.”
+
+Daisy wasn’t sure what reflective meant but her mom made it sound like it was a good thing.
+
+That night as she got into bed, she kept repeating to herself, “I hope I’m myself tomorrow. I want to be myself tomorrow.” She paused. And just before thinking turned into sleeping, “I want to be myself, but without the getting mad at Davy part.”
+
+---
+
+Back at school the next morning, Daisy’s chair felt like her regular chair again and she was able to focus on her work until it was done. 
+
+Davy was back to wanting to stand up and whisper. But she smiled at him and whispered, “Talk later, okay?” 
+
+She waited until recess and just as Mrs. Grayson told everyone they could go play, she ran over to Davy. 
+
+“Hey, sorry, I didn’t want to talk while we were supposed to be working. But… did you have a weird day yesterday?”
+
+Davy thought. “Yeah, it was kinda weird. I didn’t feel like playing soccer. But I’m definitely going to today.” He started to run towards the field.
+
+“Hey!” Daisy called. Davy turned around.
+
+“Yeah?” 
+
+Daisy didn’t know how to start. At last she said, “Um, you’re good at running. You’re really fast...and...sorry if I’ve been mean and getting mad at you.”
+
+Davy grinned. “Yeah, sorry I talk to you in class a lot. I just forget. But not yesterday.”
+
+“Yeah,” Daisy agreed. 
+
+As Davy took off after the rest of the kids playing soccer, Daisy thought, “I forget, too. But not yesterday.”
+
