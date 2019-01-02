@@ -15,7 +15,7 @@ And from his new place on the bookshelf near the window, Hammie watched and look
 
 Hammie was right about the robin. She was friendly. As she flew by the window, she saw him and thought, “Oh, what a sweet looking hamster! I never saw him before. I’ll go say hello!”
 
-But when she flew closer, she saw that the window was closed. Since she couldn’t talk to him, she waved. “He’s waving back!” She smiled. “I knew he was nice. I can meet soon. For now, I suppose I’ll go back to flying!” and off she went.
+But when she flew closer, she saw that the window was closed. Since she couldn’t talk to him, she waved. “He’s waving back!” She smiled. “I knew he was nice. I hope we can meet soon. For now, I suppose I’ll go back to flying!” and off she went.
 
  Robin loved to fly. She loved having the cool ground under her feet one minute and then deciding to fly up into the warm sunlight a moment later. She loved seeing how fast she could swoop in a circle, how close she could get to the ground, and that no branch was too high for her to land on. She never felt stuck or bored because she could always fly away. She believed nothing could ever be more fun than flying.
 
@@ -92,17 +92,29 @@ Hammie blinked. Robin blinked. “Oh.” They both said at the same time. “Wel
 “The thing is” Robin tried. “I know we’re new friends and all, and I don’t want to be rude, but I think you’re wrong. It just seems impossible that someone couldn’t love flying.”
 
 “I know what you mean, except to me it seems wrong to say that you don’t enjoy running.” Hammie said. He tapped his little hamster paw fingers together.
-  “Maybe the word we’re trying to to think of isn’t ‘wrong…’ It’s different.” Robin said slowly.
+
+“Maybe the word we’re trying to to think of isn’t ‘wrong…’ It’s different.” Robin said slowly.
+
 “Of course! You’re right! That’s it!” Hammie said happily.
+
 “What’s it?” Robin was confused.
+
 “Different!”
+
 “Right, it’s different.” Robin tried to explain again. “It’s not wrong, but I don’t know what it is.”
+
 “It’s different!” Hammie said.
+
 “What is?” Robin asked.
+
 Hammie took a deep, cheerful, and patient breath. “We’re not wrong that we don’t like the same things! We’re just different! It’s not wrong that you like to fly. It’s not wrong that I like to run!”
+
 “Oh!” Said Robin. “We’re just different from each other! I get it! Why didn’t I think of that?”
+
 “You did! You just didn’t know you did!” Hammie giggled.
-They heard someone starting to climb up the stairs. 
+
+They heard someone starting to climb up the stairs.
+
 “I think they’re going to close the window,” said Hammie. “I hope you can visit me again the next time the window is open.”
 
 “I will!” Promised Robin. “I’ll fly by and check every day.”

@@ -86,7 +86,7 @@ They all turned to look at Daisy. She shrugged.
 
 “Uh oh,”said Kate. “When you were falling asleep? Are you sure it was while you were falling asleep?” Kate said the words “sure” and “falling asleep” very slowly and clearly.
 
-“Yeah…it that bad?” 
+“Yeah…is that bad?” 
 
 “Do you remember- this is important- do you remember the very last thing you thought about?”
 
