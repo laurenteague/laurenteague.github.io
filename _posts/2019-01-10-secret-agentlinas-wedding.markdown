@@ -31,7 +31,7 @@ The girls looked at each other. Paige raised one eyebrow, Gwyneth grinned, Felic
 
 Saturday afternoon was bright, sunny, warm, and quite windy. The Secret Agentlinas were ready with their black leotards, black leggings, and hair pulled neatly into four smooth buns. They had just rung the doorbell when a young man drove up in a car. He walked to the door as Mr. Key opened it.
 
-“Hello, girls! Allow me to introduce you to the groom, Blake. Blake, these are the Secret Agentlinas. First off, we have Paige. She’s 11. Gwyneth here is 9, Felicity just turned 7 and Lulu is five and a half, if i recall correctly.”
+“Hello, girls! Allow me to introduce you to the groom, Blake. Blake, these are the Secret Agentlinas. First off, we have Paige. She’s 11. Gwyneth here is 9, Felicity just turned 7 and Lulu is five and a half, if I recall correctly.”
 
 The girls nodded. “Nice to meet you, Mr. Blake,” they said.
 
