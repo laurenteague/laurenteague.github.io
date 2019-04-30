@@ -5,9 +5,7 @@ date:   2019-04-30 07:11:57 -0500
 categories: story
 ---
 
-It’s bedtime. Time to go sleep.
-
-And you really should go to sleep.
+It’s bedtime. Time to go sleep. And you really should go to sleep.
 
 Sleep is how you get rest for tomorrow.
 
