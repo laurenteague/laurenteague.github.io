@@ -150,9 +150,7 @@ Ephesians‬ ‭6:17‬ ‭
 _And one of the elders said to me, "Weep no more; behold, the Lion of the tribe of Judah, the Root of David, has conquered..."_
 ‭‭Revelation‬ ‭5:5‬ ‭
 
-_Everyone then who hears these words of mine and does them will be like a wise man who built his house on the rock. And the rain fell, and the floods came, and the winds blew and beat on that house, but it did not fall, because it had been founded on the rock._
-
-_And everyone who hears these words of mine and does not do them will be like a foolish man who built his house on the sand. And the rain fell, and the floods came, and the winds blew and beat against that house, and it fell, and great was the fall of it._
+_Everyone then who hears these words of mine and does them will be like a wise man who built his house on the rock. And the rain fell, and the floods came, and the winds blew and beat on that house, but it did not fall, because it had been founded on the rock. And everyone who hears these words of mine and does not do them will be like a foolish man who built his house on the sand. And the rain fell, and the floods came, and the winds blew and beat against that house, and it fell, and great was the fall of it._
 ‭‭Matthew‬ ‭7:24-27‬ ‭
 
 _How precious is your steadfast love, O God! The children of mankind take refuge in the shadow of your wings._
