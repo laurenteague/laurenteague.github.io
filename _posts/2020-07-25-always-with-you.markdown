@@ -141,7 +141,7 @@ Obe ran even faster, he was in such a rush to tell his parents everything. They 
 
 ---
 
-Be strong and courageous. Do not be afraid or terrified because of them, for the Lord your God goes with you; he will never leave you nor forsake you.
+_Be strong and courageous. Do not be afraid or terrified because of them, for the Lord your God goes with you; he will never leave you nor forsake you._
 ‭‭Deuteronomy‬ ‭31:6‬ ‭
 
 And take the helmet of salvation, and the sword of the Spirit, which is the word of God 
