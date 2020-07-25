@@ -144,33 +144,33 @@ Obe ran even faster, he was in such a rush to tell his parents everything. They 
 _Be strong and courageous. Do not be afraid or terrified because of them, for the Lord your God goes with you; he will never leave you nor forsake you._
 ‭‭Deuteronomy‬ ‭31:6‬ ‭
 
-And take the helmet of salvation, and the sword of the Spirit, which is the word of God 
+_And take the helmet of salvation, and the sword of the Spirit, which is the word of God_ 
 Ephesians‬ ‭6:17‬ ‭
 
-And one of the elders said to me, "Weep no more; behold, the Lion of the tribe of Judah, the Root of David, has conquered..."
+_And one of the elders said to me, "Weep no more; behold, the Lion of the tribe of Judah, the Root of David, has conquered..."_
 ‭‭Revelation‬ ‭5:5‬ ‭
 
-Everyone then who hears these words of mine and does them will be like a wise man who built his house on the rock. And the rain fell, and the floods came, and the winds blew and beat on that house, but it did not fall, because it had been founded on the rock.
+_Everyone then who hears these words of mine and does them will be like a wise man who built his house on the rock. And the rain fell, and the floods came, and the winds blew and beat on that house, but it did not fall, because it had been founded on the rock._
 
-And everyone who hears these words of mine and does not do them will be like a foolish man who built his house on the sand. And the rain fell, and the floods came, and the winds blew and beat against that house, and it fell, and great was the fall of it.
+_And everyone who hears these words of mine and does not do them will be like a foolish man who built his house on the sand. And the rain fell, and the floods came, and the winds blew and beat against that house, and it fell, and great was the fall of it._
 ‭‭Matthew‬ ‭7:24-27‬ ‭
 
-How precious is your steadfast love, O God! The children of mankind take refuge in the shadow of your wings.
+_How precious is your steadfast love, O God! The children of mankind take refuge in the shadow of your wings._
 ‭‭Psalm‬ ‭36:7‬ ‭
 
-He alone is my rock and my salvation, my fortress; I shall not be greatly shaken.
+_He alone is my rock and my salvation, my fortress; I shall not be greatly shaken._
 ‭‭Psalm‬ ‭62:2‬ ‭
 
-The name of the Lord is a strong tower; the righteous man runs into it and is safe.
+_The name of the Lord is a strong tower; the righteous man runs into it and is safe._
 ‭‭Proverbs‬ ‭18:10‬ ‭
 
-Our soul waits for the Lord; he is our help and our shield.
+_Our soul waits for the Lord; he is our help and our shield._
 ‭‭Psalm‬ ‭33:20‬ ‭
 
-But the Lord has become my stronghold, and my God the rock of my refuge.
+_But the Lord has become my stronghold, and my God the rock of my refuge._
 ‭‭Psalm‬ ‭94:22‬ 
 
-But the Lord is with me as a dread warrior; therefore my persecutors will stumble; they will not overcome me...
+_But the Lord is with me as a dread warrior; therefore my persecutors will stumble; they will not overcome me..._
 ‭‭Jeremiah‬ ‭20:11‬a
 
 
