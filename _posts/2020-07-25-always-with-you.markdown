@@ -171,6 +171,7 @@ _But the Lord has become my stronghold, and my God the rock of my refuge._
 _But the Lord is with me as a dread warrior; therefore my persecutors will stumble; they will not overcome me..._
 ‭‭Jeremiah‬ ‭20:11‬a
 
+---
 
 Obe: God’s Worker (Hebrew)
 
