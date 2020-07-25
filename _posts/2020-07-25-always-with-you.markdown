@@ -5,6 +5,8 @@ date:   2020-07-25 07:11:57 -0500
 categories: story
 ---
 
+![](/assets/alwayswithyou/harvesta-sign.png)
+
 Obe couldn’t believe that this beautiful and busy place was his new home. Everywhere he looked, there were people working and crops growing and animals grazing. Obe had never seen so much life.
 
 He was just starting to help his parents unload their things when Obe spotted a group of kids walking in the field next door. One of them said something that made another one laugh.
