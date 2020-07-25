@@ -41,6 +41,8 @@ Except something was holding him there.
 
 Obe looked down and saw one of the weeds wrapped around his ankle. He tried to brush it off, but the weed stayed exactly where it was. Obe yanked the stubborn plant as hard as he could. It didn't budge.
 
+![](/assets/alwayswithyou/grip-weed.png)
+
 By now the other kids realized Obe wasn’t with them and turned around to see him taking deep breaths. (That's what his dad told him to do when he felt like yelling or screaming or panicking in any way.)
 
 "Obe? Are you okay?" asked Pennie.
@@ -59,7 +61,9 @@ Pennie shuddered. "That’d be terrifying."
 
 "Ah," Obe winced. "My foot’s asleep."
 
-"Obe, that’s a Grip Weed," Toll said. " You need to open your Always With You." 
+"Obe, that’s a Grip Weed," Toll said. " You need to open your Always With You."
+
+![](/assets/alwayswithyou/old-book.png)
 
 "My what?" Obe asked. He looked down to see a book that looked so old, it might have been around forever. "Where did that -" he started to ask.
 
@@ -85,6 +89,8 @@ Obe flipped through the pages until he stopped at an image of stately, strong li
 
 They all turned at the sound of heavy, padding footsteps. The lion was out of the page and walking alongside them. He kept his eyes on Obe without blinking.
 
+![](/assets/alwayswithyou/lion.png)
+
 "See?!" Toll laughed. "You have a lion with you! Why would you be afraid?"
 
 Obe stared at the lion. His fear settled lower and lower until he didn’t feel it anymore.
@@ -102,10 +108,16 @@ They spent the rest of the day teaching Obe about the Always With You as they ov
 
 Jari showed Obe the stones that rose to meet their feet in a smooth, flat path across the Sinking Sand.
 
+![](/assets/alwayswithyou/sinking-sand.png)
+
 Toll saw a snowstorm approaching and told everyone to get under their hens. Obe repeated, "A hen? Like a chicken?" And realized he was resting against a huge, soft chest that rose and fell in steady rhythm as the hen breathed. There was also a strong wing stretched over him like a blanket. It took a few hours for the snow storm to pass but Obe didn’t mind. It was the most refreshing, comfortable rest he had ever had.
+
+![](/assets/alwayswithyou/hen.png)
 
 After the snowstorm, the cattle began to stampede again and headed their way.
 Obe used a huge fortress from the Always With You. He looked over and saw Jari also had a fortress while Toll and Pennie were in towers. The cattle ran around their huge structures without slowing down. "If I was on the ground, I’d be too scared to move," he thought. Fortunately, he wasn’t on the ground.  He was in a massive stone fortress, high above the danger.
+
+![](/assets/alwayswithyou/stampede.png)
 
 As the last of the cows moved away, Toll heard his sister calling for help planting seeds. "That must mean the Snatching Birds are in our field. Come on, Obe! You can use your shield!" he said. Obe was happy to help- it was his first official farm chore. He and Toll held their shields over the seeds to keep the birds away until the others had safely covered them with rich, dark soil.
 
@@ -124,6 +136,8 @@ He thanked his friends for everything they had shared with him that day as he st
 Obe was getting closer to his new house and saw parents on the porch, watching for him. They looked worried.
 
 Obe ran even faster, he was in such a rush to tell his parents everything. They would never have to worry again.
+
+![](/assets/alwayswithyou/fields.png)
 
 ---
 
