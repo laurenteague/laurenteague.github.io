@@ -5,9 +5,9 @@ date:   2020-08-09 07:11:57 -0500
 categories: story
 ---
 
-[Download The Printable PDF](https://google.com){: .btn}
+[📚 Download The Printable PDF](https://google.com){: .btn}
 
-![](/assets/alwayswithyou/harvesta-sign.png)
+![](/assets/atticofclutter/01.png)
 
 ### Paige, 11 · Gwyneth, 9 · Felicity, 7 · Lulu 5 ½
 
