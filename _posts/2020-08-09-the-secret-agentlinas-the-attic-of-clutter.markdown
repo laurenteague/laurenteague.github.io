@@ -7,7 +7,10 @@ categories: story
 
 #### 📖 Download Printable PDF
 
-### Paige, 11  ·  Gwyneth, 9  ·  Felicity, 7  ·  Lulu 5 ½
+
+![](/assets/alwayswithyou/harvesta-sign.png)
+
+### Paige, 11 · Gwyneth, 9 · Felicity, 7 · Lulu 5 ½
 
 ## Chapter One · Mrs. Dowkin’s The Mission
 
