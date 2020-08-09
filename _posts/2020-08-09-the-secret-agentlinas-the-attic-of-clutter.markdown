@@ -7,6 +7,8 @@ categories: story
 
 [#### 📖 Download The Printable PDF](https://google.com)
 
+[Click me](http://www.google.com){: .btn}
+
 
 ![](/assets/alwayswithyou/harvesta-sign.png)
 
