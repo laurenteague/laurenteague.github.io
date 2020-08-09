@@ -81,7 +81,7 @@ Lulu nodded in modest victory.
 
 Lulu nodded. 
 
-"That’s could work-" Paige started just as Felicity said, "That would never work." 
+"Thats could work—" Paige started just as Felicity said, "That would never work." 
 
 Gwyneth spoke quickly to head off an argument. "It doesn’t matter because Mrs. D said there probably isn’t a mouse anyway. Mr. D just hears one in his sleep."
 
