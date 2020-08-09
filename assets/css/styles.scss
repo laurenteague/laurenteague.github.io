@@ -119,21 +119,13 @@ section {
 			width: auto;	
 		}
 	}
-
-	p:first-of-type::first-letter {
-	   font-size: 3.45em;
-	   float: left;
-	   line-height: 3.8rem;
-	   padding-right: 6px;
-	   margin-top: 4px;
-	}
 }
 
 footer {
   border-top: 1px solid #ebebeb;
   text-align: center;
   padding: 32px 0px;
-	  text-transform: uppercase;
+  text-transform: uppercase;
   font-size: 12px;
   letter-spacing: 0.02em;
   font-weight: 600;
