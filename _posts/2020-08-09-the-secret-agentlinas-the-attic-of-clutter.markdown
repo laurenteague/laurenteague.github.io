@@ -7,6 +7,8 @@ categories: story
 
 #### 📖 Download Printable PDF
 
+### Paige, 11  ·  Gwyneth, 9  ·  Felicity, 7  ·  Lulu 5 ½
+
 ## Chapter One · Mrs. Dowkin’s The Mission
 
 The four Nelson sisters were choreographing new dances on their backyard stage when they heard a kind voice call out, "Lovely dancing, young ladies!"
