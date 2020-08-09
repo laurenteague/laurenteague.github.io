@@ -101,6 +101,10 @@ h4 {
 	text-transform: uppercase;
 	font-style: 8px;
 	letter-spacing: 0.06em;
+	
+	&:before {
+		content: &#128214;
+	}
 }
 
 section {
