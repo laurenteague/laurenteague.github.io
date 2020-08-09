@@ -90,7 +90,7 @@ h3 {
 	font-weight: 500;
 }
 
-h4 {
+.btn {
 	display: block;
 	border: 2px solid blue;
 	padding-top: 16px;
@@ -103,13 +103,9 @@ h4 {
 	letter-spacing: 0.07em;
 }
 
-h4:before {
+.btn:before {
 	content: &#128214;
 	margin-left: 16px;
-}
-
-.btn {
-background-color: red;
 }
 
 section {
