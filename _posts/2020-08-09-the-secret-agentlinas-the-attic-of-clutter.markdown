@@ -5,7 +5,7 @@ date:   2020-08-09 07:11:57 -0500
 categories: story
 ---
 
-[:books: Download The Printable PDF](https://google.com){: .btn}
+[Download The Printable PDF](https://google.com){: .btn}
 
 ![](/assets/alwayswithyou/harvesta-sign.png)
 
