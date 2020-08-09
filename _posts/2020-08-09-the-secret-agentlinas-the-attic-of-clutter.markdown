@@ -21,7 +21,7 @@ Mrs. Dowkins lowered her voice. "It’s just for me. You know how I have a prett
 
 The Agentlinas all nodded. Mrs. Dowkins remembered all their ages and birthdays and never called them each other’s names- very rare indeed in a family of four girls.
 
-"Well, I am in a bit of a pickle. Mr. Dowkins and I have our 60th anniversary soon——"
+"Well, I am in a bit of a pickle. Mr. Dowkins and I have our 60th anniversary soon—"
 
 "Awww!" The four ballerinas said in harmony.
 
