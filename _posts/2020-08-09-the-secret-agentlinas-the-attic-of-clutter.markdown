@@ -31,7 +31,7 @@ The Agentlinas all nodded. Mrs. Dowkins remembered all their ages and birthdays 
 
 "Awww!" The four ballerinas said in harmony.
 
-Mrs. Dowkins smiled. "Thank you, sweeties. Well, our kids are throwing a party- you’ll all be invited, of course!- and they asked us for some of our old things to use as decorations. We’re supposed to lend them our high school rings, since that’s where we met. Well, Mr. Dowkins is very proud of himself because he’s been keeping his ring on his dresser for decades. And I put mine in a very safe spot where I knew it wouldn’t get thrown out or anything like that."
+Mrs. Dowkins smiled. "Thank you, sweeties. Well, our kids are throwing a party — you’ll all be invited, of course! — and they asked us for some of our old things to use as decorations. We’re supposed to lend them our high school rings, since that’s where we met. Well, Mr. Dowkins is very proud of himself because he’s been keeping his ring on his dresser for decades. And I put mine in a very safe spot where I knew it wouldn’t get thrown out or anything like that."
 
 "Very wise, Mrs. D," said Gwyneth.
 
