@@ -181,7 +181,7 @@ Paige couldn’t see well in the dim light, but was able to make out that the ne
 
 She looked over to Gwyneth and showed her the "not a mouse stole" and mimed the mouse dance. Gwyneth got it immediately and put on a quick, silent mime show of someone finding a mouse, shrieking and fainting. Paige nodded and silently laughed with her.
 
-Shaking her head in silent appreciation of Gwyneth’s miming abilities (very helping during dramatic ballet performances), Paige went back to searching. Soon she felt someone watching her. Glancing up, she saw Lulu had gotten distracted from the search and was tenderly rocking an ancient looking baby doll.
+Shaking her head in silent appreciation of Gwyneth’s miming abilities (very helping during dramatic ballet performances), Paige checked on Lulu's search progress. She saw that the youngest Agentlina had gotten distracted and was tenderly rocking an ancient looking baby doll.
 
 ![](/assets/atticofclutter/07.png)
 
@@ -217,7 +217,7 @@ Gwyneth signaled that they should switch spots. She may as well check Lulu’s c
 
 Meanwhile, Felicity had been keeping herself occupied by looking through the entire wardwobe, then through a pile of old shoes, including a pair of worn jazz shoes, ‘Mrs. D, you were a dancer!’ She thought to herself with a smile. 
 
-She noticed a box of dusty record albums. Flipping through the box, she lost of time as she realized she knew many of the songs from ballet class. "Mr. and Mrs. D sure like the classics!" She was so absorbed she didn’t notice Paige or Gwyneth, who were taking turns trying to signal that she need to get back on task.
+She noticed a box of dusty record albums. Flipping through the box, she lost of time as she realized she knew many of the songs from ballet class. "Mr. and Mrs. D sure like the classics!" She was so absorbed she didn’t notice Paige or Gwyneth, who were taking turns trying to signal that she needed to get back on task.
 
 Felicity had finished the box when she saw, to her excitement, another pile of records, with a jazz album right on top.
 
