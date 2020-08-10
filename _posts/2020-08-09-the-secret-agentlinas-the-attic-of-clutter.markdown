@@ -7,7 +7,7 @@ categories: story
 
 [📚 Download The Printable PDF](https://google.com){: .btn}
 
-![](/assets/atticofclutter/01.png)
+![](/assets/atticofclutter/01edit.png)
 
 ### Paige, 11 · Gwyneth, 9 · Felicity, 7 · Lulu 5 ½
 
@@ -16,6 +16,8 @@ categories: story
 The four Nelson sisters were choreographing new dances on their backyard stage when they heard a kind voice call out, "Lovely dancing, young ladies!"
 
 They looked over to see their sweet, grandmotherly neighbor, Mrs. Dowkins, waving at them over the fence.
+
+![](/assets/atticofclutter/02.png)
 
 "Thanks, Mrs. Dowkins!" They called back as they ran to say hello. 
 
@@ -69,6 +71,8 @@ The others paused. "Well, yes, but-" Felicity started to say.
 
 "And what’s a portal?" Lulu asked, now with both hands on her hips.
 
+![](/assets/atticofclutter/03.png)
+
 The others looked at each other but didn’t say anything. 
 
 Lulu nodded in modest victory.
@@ -113,7 +117,11 @@ The others nodded and showed their arm signals.
 
 "Freeze?" Lulu guessed.
 
-"No, that’s fourth," said Gwyneth and Felicity flatly. They showed their fourth position. "And fifth is all clear," Felicity added quickly. "Don’t worry too much about the signals, Lulu, just make sure you’re super quiet."
+"No, that’s fourth," said Gwyneth and Felicity flatly. They showed their fourth position. 
+
+![](/assets/atticofclutter/04.png)
+
+"And fifth is all clear," Felicity added quickly. "Don’t worry too much about the signals, Lulu, just make sure you’re super quiet."
 
 "Ok!" Said Lulu as she lifted a foot to skip. She paused and lowered her foot again. "What was this one?" She repeated the 3rd position.
 
@@ -143,6 +151,8 @@ As soon as Mrs. D’s friendly face appeared at the front window, they stood up 
 
 Gwyneth lost sight of Paige. Turning to look, she saw Paige doing graceful grand plies in various places on the front lawn.
 
+![](/assets/atticofclutter/05.png)
+
 Motioning for her to hurry, Gwyneth watched her big sister curiously. Paige had blades of grass in her hand that she was placing, one at a time, into the lawn. After a few more grand plies, she leapt a few good leaps and caught up.
 
 "What was that about?" Gwyneth whispered as they crept around to the back door. 
@@ -163,7 +173,9 @@ Felicity walked into the farthest corner by stepping in giant arabesques in the 
 
 Paige stared at her designated area. There was some light coming in from a window, but it struggled to get into all the spaces of the clutter. Carefully lifting a few old dresses, searching their pockets to be extra thorough, she uncovered a box filled with mismatched gloves and winter hats.
 
- Paige carefully sifted her hands through the wools and silks to see if her fingers brushed anything metal and round when she was absolutely certain she felt something furry. Refusing to squeal, she snapped her hand back and shut her eyes. She waited to see if Mr. Dowkin’s mouse scampered out. When nothing in the box moved, she took a deep breath and reached back in until she felt the fur again. It wasn’t warm, so that was a good sign. Paige slowly pulled the furry object out. And kept pulling as a long, slinky fur stole slipped from the box. 
+Paige carefully sifted her hands through the wools and silks to see if her fingers brushed anything metal and round when she was absolutely certain she felt something furry. Refusing to squeal, she snapped her hand back and shut her eyes. She waited to see if Mr. Dowkin’s mouse scampered out. When nothing in the box moved, she took a deep breath and reached back in until she felt the fur again. It wasn’t warm, so that was a good sign. Paige slowly pulled the furry object out. And kept pulling as a long, slinky fur stole slipped from the box.
+
+![](/assets/atticofclutter/06.png)
 
 She looked up to give the all clear 5th position signal and caught Felicity’s eye. Paige held up the the stole and smiled. Felicity was smiling, too- in fact, she was grinning. Paige pointed to the fur stole, and mimed a mouse dance, to show her sisters how she thought it had been the mouse. Felicity didn’t seem to notice the stole at all and ignored Paige’s very cute mouse dance. She was holding up a necklace in triumph. She gave a bow and thumb’s up. 
 
@@ -171,17 +183,23 @@ Paige couldn’t see well in the dim light, but was able to make out that the ne
 
 She looked over to Gwyneth and showed her the "not a mouse stole" and mimed the mouse dance. Gwyneth got it immediately and put on a quick, silent mime show of someone finding a mouse, shrieking and fainting. Paige nodded and silently laughed with her.
 
-Shaking her head in silent appreciation of Gwyneth’s miming abilities (very helping during dramatic ballet performances), Paige went back to searching. Soon she felt someone watching her. Glancing up, she saw Lulu had gotten distracted from the search and was tenderly rocking an ancient looking baby doll. 
+Shaking her head in silent appreciation of Gwyneth’s miming abilities (very helping during dramatic ballet performances), Paige went back to searching. Soon she felt someone watching her. Glancing up, she saw Lulu had gotten distracted from the search and was tenderly rocking an ancient looking baby doll.
+
+![](/assets/atticofclutter/07.png)
 
 Aware that they were quickly moving through their time, Paige went back to checking a pile of hat boxes. She focused on picking up each hat box one at a time as she checked inside. One held a collection of bent and crumpled paper dolls and paper outfits, one had old newspaper clippings, one was completely empty, but none of them had any jewelry. 
 
- She noticed Felicity, now wearing the charm necklace, out of the corner of her eye. Felicity was looking through old framed photographs. Paige grimaced. ‘A ring wouldn’t be in a frame. Focus, Felicity!’ As she tried to think of which arm signal would best represent, "Remember the mission!", she saw the tower of hat boxes beginning to tilt. Quickly lifting a leg in grand battement to hold it steady, she balanced the other leg on the floor boards, praying they wouldn’t creak. She stretched her leg and pushed the teetering stack inch by silent inch back into place until it was stable. 
+She noticed Felicity, now wearing the charm necklace, out of the corner of her eye. Felicity was looking through old framed photographs. Paige grimaced. ‘A ring wouldn’t be in a frame. Focus, Felicity!’ As she tried to think of which arm signal would best represent, "Remember the mission!", she saw the tower of hat boxes beginning to tilt. Quickly lifting a leg in grand battement to hold it steady, she balanced the other leg on the floor boards, praying they wouldn’t creak. She stretched her leg and pushed the teetering stack inch by silent inch back into place until it was stable.
+
+![](/assets/atticofclutter/08.png)
 
 She breathed a sigh of relief and checked on Felicity, who was now half hidden in an old wardrobe. The mission seemed to be back on track. Even Lulu was at least checking through the baby doll’s clothes. Oh, wait- she was changing the baby’s outfit. ‘That’s okay,’ Paige reasoned. At least she was being quiet. Paige began to go through a pile of winter coats, again sticking her hand in each pocket, hoping each time to find the ring tucked away in one.
 
 ## Chapter Four · The Search Continues
 
-One corner over, Gwyneth was in a hunched demi plie as she squeezed under the lowest part of the slanted ceiling. She’d found a charming collection of snow globes and music boxes. Lifting the lid of each music box to make sure there wasn’t the high school ring inside, Gwyneth got to one that was a bit rusty. Using her fingers to pry the lid open, she  was horrified when she heard a click. "It’s going to play!" She realized in panic. Pushing on the lid, which refused to close, Gwyneth saw a worn quilt near her feet. She dipped her legs into a grand plie, scooped the quilt up and wrapped it around the old, stubborn music box. 
+One corner over, Gwyneth was in a hunched demi plie as she squeezed under the lowest part of the slanted ceiling. She’d found a charming collection of snow globes and music boxes. Lifting the lid of each music box to make sure there wasn’t the high school ring inside, Gwyneth got to one that was a bit rusty. Using her fingers to pry the lid open, she  was horrified when she heard a click. "It’s going to play!" She realized in panic. Pushing on the lid, which refused to close, Gwyneth saw a worn quilt near her feet. She dipped her legs into a grand plie, scooped the quilt up and wrapped it around the old, stubborn music box.
+
+![](/assets/atticofclutter/09.png)
 
 A few flat, muffled notes tried to play through the quilt. They pinged out slower and slower until the music box finally gave up and was quiet again. Gwyneth looked up to see the other Secret Agentlinas frozen in 4th position, all looking a bit pale as they waited. And waited. 
 
@@ -207,7 +225,11 @@ Felicity had finished the box when she saw, to her excitement, another pile of r
 
 Reaching into a dark corner to slide the pile out, she touched something soft. ‘What’s that?" she wondered absently as she felt around to see what it was.
 
-There was a loud squeak and a tiny, gray mouse sprang from the corner, landing in an open space. The mouse froze in fear, the Secret Agentlinas froze. They didn’t even have time to freeze in fourth position. They froze with hands in jewelry boxes and holding teacups and shifting coats. They froze in place like a strange Degas painting. And waited.
+There was a loud squeak and a tiny, gray mouse sprang from the corner, landing in an open space.
+
+![](/assets/atticofclutter/10.png)
+
+The mouse froze in fear, the Secret Agentlinas froze. They didn’t even have time to freeze in fourth position. They froze with hands in jewelry boxes and holding teacups and shifting coats. They froze in place like a strange Degas painting. And waited.
 
 ## Chapter Five · Mr. Dowkins Hears a Noise
 
@@ -255,6 +277,8 @@ Felicity saw Paige with the box, following the mouse with her eyes. "We don’t 
 
 Gwyneth leaped over several boxes to take Paige’s place by the window. "He’s opening the mail box!.....He’s getting the mail!...He’s closing the mailbox- PAIGE! HE’S ON HIS WAY BACK! We need to get downstairs!"
 
+![](/assets/atticofclutter/11.png)
+
 Paige held her spot. The mouse was slowing down a little. "It’ll be okay…"she said calmly.
 
 "Are you talking to us or the mouse?! Paaaaaaige! He’s halfway- oh, wait. He stopped walking. He’s looking…huh." Gwyneth stared out the window. "Paige, you genius. He’s pulling your grass out! It’s working!"
@@ -281,6 +305,8 @@ Hurrying into the kitchen, Paige, Gwyneth and Lulu saw Mrs. Dowkins holding the 
 
 Paige didn’t have time to process what was happening as the four girls sprinted across the backyard and jeted over the hedge.
 
+![](/assets/atticofclutter/12.png)
+
 They knelt behind the bushes and soon heard the front door open and Mr. D’s voice from inside. They couldn’t hear everything he said but some words drifted out. "Strangest thing" "and "wrong grass everywhere!" And "so you did know where it was!"
 
 The girls crawled low to stay hidden behind the hedge and made their way around the side of the house. After waiting to be sure the coast was clear, they hurried back to the street and began to walk home.
@@ -297,6 +323,8 @@ Felicity looked at her. "What are you talking about? She was thanking us for com
 Felicity cocked her head quizzingly. "I did, too. I told you, Paige."
 
 "You weren’t even looking for it! I’ve never seen you so distracted during a mission. And what do you mean you told me? The only thing you showed me was-" Paige stopped walking.  "Wait. Felicity- are you talking about the charm necklace?" The others stopped walking, too.
+
+![](/assets/atticofclutter/13.png)
 
 "Yes! It was so cool! Even better than the one my friend brought to school! It had all this great stuff on it. Her high school ring, little streamers from her cheerleading pom poms, cheerleading ribbons, an old locker lock, a Vote For Evelyn For Class President button, um, what else.."
 
@@ -321,6 +349,8 @@ Gwyneth laughed, "Except we weren’t exploring- we were still looking for the r
 Paige laughed, too. "Yeah, we didn’t even know we signed on for the mouse part. We should probably set this little guy free somewhere."
 
 The Secret Agentlinas took the long way home to set the mouse free in the woods. Paige, Gwyneth, and Lulu all curtsied to Felicity for being the one to find Mrs. Dowkins’s ring and then the younger Agentlinas curtsied to Paige. "For catching the Mouse King!" Lulu cheered. "Even though I would have gotten him with my shoe."
+
+![](/assets/atticofclutter/14.png)
 
 ## Epilogue · Two Weeks Later
 
