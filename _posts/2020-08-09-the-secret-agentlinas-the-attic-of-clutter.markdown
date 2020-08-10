@@ -5,8 +5,6 @@ date:   2020-08-09 07:11:57 -0500
 categories: story
 ---
 
-[📚 Download The Printable PDF](https://google.com){: .btn}
-
 ![](/assets/atticofclutter/01edit.png)
 
 ### Lulu 5 ½ · Felicity, 7 · Gwyneth, 9 · Paige, 11
