@@ -9,9 +9,9 @@ categories: story
 
 ![](/assets/atticofclutter/01edit.png)
 
-### Paige, 11 · Gwyneth, 9 · Felicity, 7 · Lulu 5 ½
+### Lulu 5 ½ · Felicity, 7 · Gwyneth, 9 · Paige, 11
 
-## Chapter One · Mrs. Dowkin’s The Mission
+## Chapter One · Mrs. Dowkin’s Mission
 
 The four Nelson sisters were choreographing new dances on their backyard stage when they heard a kind voice call out, "Lovely dancing, young ladies!"
 
