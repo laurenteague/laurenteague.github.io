@@ -47,11 +47,11 @@ At the word, "attic," Paige, Gwyneth and Felicity snuck glances at each other. P
 
 Lulu looked at Paige with wide, sad eyes. She had a good guess what they were whispering about. 
 
-"Anywho," said Mrs. Dowkins rather brightly. She didn’t like to see any of the girls upset. "I’ll tell you the rest of the mission and you can decide if you’re up for it- every day, Mr. Dowkins takes a nap on the couch in his study after lunch. That’s when I’m hoping to let you girls in and you’ll have about an hour and a half to look until the mail truck comes. Those squeaky brakes always wake him up. Oh, speaking of squeaks, I’m counting on those quiet ballerina feet because his study is directly below the attic and he hears any little noise coming from that area. He’s convinced we have a mouse up there." 
+"Anywho," said Mrs. Dowkins rather brightly. She didn’t like to see any of the girls upset. "I’ll tell you the rest of the mission and you can decide if you’re up for it: Every day, Mr. Dowkins takes a nap on the couch in his study after lunch. That’s when I’m hoping to let you girls in and you’ll have about an hour and a half to look until the mail truck comes. Those squeaky brakes always wake him up. Oh, speaking of squeaks, I’m counting on those quiet ballerina feet because his study is directly below the attic and he hears any little noise coming from that area. He’s convinced we have a mouse up there." 
 
-Mrs. Downkins noticed Gwyneth wrinkle her nose. " I really don’t think we do- I’ve never heard a sound. He claims he hears it at night. Sits straight up in bed, ‘It’s the mouse, Evelyn!’  And wakes me up and tells me to  listen but I never hear a thing. And he never believes he might be dreaming.
+Mrs. Downkins noticed Gwyneth wrinkle her nose. "I really don’t think we do — I’ve never heard a sound. He claims he hears it at night. Sits straight up in bed, ‘It’s the mouse, Evelyn!’  And wakes me up and tells me to listen but I never hear a thing. And he never believes he might be dreaming.
 
-But back to the mission-while he’s outside getting the mail, you hurry down, give me the ring, if you find it, of course, and make a break for the back door before he gets back in. Would that work?"
+But back to the mission: While he’s outside getting the mail, you hurry down, give me the ring, if you find it, of course, and make a break for the back door before he gets back in. Would that work?"
 
 The Agentlinas started to nod as Mrs. Dowkins remembered, "Oh! And for a fee, I thought if you find anything up there that you like, perhaps you could keep it? Just check with me but I imagine anything up there would be fine."
 
@@ -77,7 +77,7 @@ Lulu nodded in modest victory.
 
 "What about the mouse?" Gwyneth asked. "A live animal could complicate the mission."
 
-"It’s just a mouse. It’s easy to get rid of them- you throw a ballet shoe." Lulu pretended to hold a shoe over her head like a pitcher. "Really hard, right at their head." She let the invisible shoe fly. 
+"It’s just a mouse. It’s easy to get rid of them: You throw a ballet shoe." Lulu pretended to hold a shoe over her head like a pitcher. "Really hard, right at their head." She let the invisible shoe fly. 
 
 "Is that something you saw in The Nutcracker?" Paige guessed.
 
@@ -101,7 +101,7 @@ Lulu was skipping a little ahead and stopped to look back. "I forgot them again.
 
 "No problem, Lulu- that’s what dress rehearsals and practice are for!" Paige said while Gwyneth and Felicity sighed again, this time in defeat. They stretched their arms in preparation.
 
-"Okay, so, 1st position means-" Paige started. 
+"Okay, so, 1st position means—" Paige started. 
 
 "Help!" Lulu said cheerfully. 
 
@@ -175,7 +175,7 @@ Paige carefully sifted her hands through the wools and silks to see if her finge
 
 ![](/assets/atticofclutter/06.png)
 
-She looked up to give the all clear 5th position signal and caught Felicity’s eye. Paige held up the the stole and smiled. Felicity was smiling, too- in fact, she was grinning. Paige pointed to the fur stole, and mimed a mouse dance, to show her sisters how she thought it had been the mouse. Felicity didn’t seem to notice the stole at all and ignored Paige’s very cute mouse dance. She was holding up a necklace in triumph. She gave a bow and thumb’s up. 
+She looked up to give the all clear 5th position signal and caught Felicity’s eye. Paige held up the the stole and smiled. Felicity was smiling, too — in fact, she was grinning. Paige pointed to the fur stole, and mimed a mouse dance, to show her sisters how she thought it had been the mouse. Felicity didn’t seem to notice the stole at all and ignored Paige’s very cute mouse dance. She was holding up a necklace in triumph. She gave a bow and thumb’s up. 
 
 Paige couldn’t see well in the dim light, but was able to make out that the necklace had lots of little things dangling from it. "Oh, she found a charm necklace like she wanted," Paige realized. Felicity was staring at her, like she really wanted Paige to respond. Paige grinned as widely as she could and returned Felicity’s thumb’s up. Then she motioned for her to keep looking. 
 
@@ -213,7 +213,7 @@ Someone waving on the other side of the attic caught Gywneth’s attention. Lulu
 
 Gwyneth signaled that they should switch spots. She may as well check Lulu’s corner while Lulu threw the doll a quick tea party.
 
- ‘Well, well, well, what have we here?’ she thought to herself as she saw a big jewelry box. A few rays of sunlight lit it up, like a treasure under a spotlight. ‘It’s got to be here!’ She eagerly began to hold each earring, bracelet, and brooch closer to the light, hoping to find Mrs. D’s high school ring.
+‘Well, well, well, what have we here?’ she thought to herself as she saw a big jewelry box. A few rays of sunlight lit it up, like a treasure under a spotlight. ‘It’s got to be here!’ She eagerly began to hold each earring, bracelet, and brooch closer to the light, hoping to find Mrs. D’s high school ring.
 
 Meanwhile, Felicity had been keeping herself occupied by looking through the entire wardwobe, then through a pile of old shoes, including a pair of worn jazz shoes, ‘Mrs. D, you were a dancer!’ She thought to herself with a smile. 
 
