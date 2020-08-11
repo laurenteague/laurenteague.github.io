@@ -49,7 +49,7 @@ Lulu looked at Paige with wide, sad eyes. She had a good guess what they were wh
 
 "Anywho," said Mrs. Dowkins rather brightly. She didn’t like to see any of the girls upset. "I’ll tell you the rest of the mission and you can decide if you’re up for it: Every day, Mr. Dowkins takes a nap on the couch in his study after lunch. That’s when I’m hoping to let you girls in and you’ll have about an hour and a half to look until the mail truck comes. Those squeaky brakes always wake him up. Oh, speaking of squeaks, I’m counting on those quiet ballerina feet because his study is directly below the attic and he hears any little noise coming from that area. He’s convinced we have a mouse up there." 
 
-Mrs. Downkins noticed Gwyneth wrinkle her nose. "I really don’t think we do — I’ve never heard a sound. He claims he hears it at night. Sits straight up in bed, ‘It’s the mouse, Evelyn!’  And wakes me up and tells me to listen but I never hear a thing. And he never believes he might be dreaming.
+Mrs. Dowkins noticed Gwyneth wrinkle her nose. "I really don’t think we do — I’ve never heard a sound. He claims he hears it at night. Sits straight up in bed, ‘It’s the mouse, Evelyn!’  And wakes me up and tells me to listen but I never hear a thing. And he never believes he might be dreaming.
 
 But back to the mission: While he’s outside getting the mail, you hurry down, give me the ring, if you find it, of course, and make a break for the back door before he gets back in. Would that work?"
 
