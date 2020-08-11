@@ -7,8 +7,7 @@ categories: story
 
 [📚 Download The Printable PDF](/assets/atticofclutter/atticofclutter.pdf){: .btn}
 
-
-![](/assets/atticofclutter/01edit.png)
+![](/assets/atticofclutter/01new.png)
 
 ### Lulu 5 ½ · Felicity, 7 · Gwyneth, 9 · Paige, 11
 
