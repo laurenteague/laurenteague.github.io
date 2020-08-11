@@ -9,7 +9,7 @@ categories: story
 
 ### Lulu 5 ½ · Felicity, 7 · Gwyneth, 9 · Paige, 11
 
-## Chapter One · Mrs. Dowkin’s Mission
+## Chapter One · Mrs. D’s Mission
 
 The four Nelson sisters were choreographing new dances on their backyard stage when they heard a kind voice call out, "Lovely dancing, young ladies!"
 
@@ -89,7 +89,7 @@ Gwyneth spoke quickly to head off an argument. "It doesn’t matter because Mrs.
 
 "Right," Paige said. "Now we better have a quick meeting and prep- we only have an hour and a half for our mission tomorrow. We’ll have to work fast."
 
-## Chapter Two · The Secret Agentlinas Practice
+## Chapter Two · Arm Signals
 
 The next afternoon, the four Secret Agentlina sisters were on their way to the Dowkins’ backdoor.
 
@@ -193,7 +193,7 @@ She noticed Felicity, now wearing the charm necklace, out of the corner of her e
 
 She breathed a sigh of relief and checked on Felicity, who was now half hidden in an old wardrobe. The mission seemed to be back on track. Even Lulu was at least checking through the baby doll’s clothes. Oh, wait- she was changing the baby’s outfit. ‘That’s okay,’ Paige reasoned. At least she was being quiet. Paige began to go through a pile of winter coats, again sticking her hand in each pocket, hoping each time to find the ring tucked away in one.
 
-## Chapter Four · The Search Continues
+## Chapter Four · The Rusty Music Box
 
 One corner over, Gwyneth was in a hunched demi plie as she squeezed under the lowest part of the slanted ceiling. She’d found a charming collection of snow globes and music boxes. Lifting the lid of each music box to make sure there wasn’t the high school ring inside, Gwyneth got to one that was a bit rusty. Using her fingers to pry the lid open, she  was horrified when she heard a click. "It’s going to play!" She realized in panic. Pushing on the lid, which refused to close, Gwyneth saw a worn quilt near her feet. She dipped her legs into a grand plie, scooped the quilt up and wrapped it around the old, stubborn music box.
 
@@ -201,7 +201,7 @@ One corner over, Gwyneth was in a hunched demi plie as she squeezed under the lo
 
 A few flat, muffled notes tried to play through the quilt. They pinged out slower and slower until the music box finally gave up and was quiet again. Gwyneth looked up to see the other Secret Agentlinas frozen in 4th position, all looking a bit pale as they waited. And waited. 
 
-They didn’t hear any noise coming from Mr. Dowkin’s study below. After a full two minutes passed, Paige gave the 5th position "All Clear" signal. She checked her watch and held up three fingers and signaled a 0 to let them know they had thirty minutes left.
+They didn’t hear any noise coming from Mr. Dowkins’s study below. After a full two minutes passed, Paige gave the 5th position "All Clear" signal. She checked her watch and held up three fingers and signaled a 0 to let them know they had thirty minutes left.
 
 Gwyneth mouthed, "Sorry!" With her heart still racing, she moved slowly around the snow globes. Something brushed against her shin. ‘MOUSE!’ She thought and immediately moved her leg into a passé to get it out of the way. She held her breath, determined not to shriek, even if the mouse moved. She didn’t care if it ran right across her foot with its little mouse claws and whiskers and tiny rodent teeth- she would NOT compromise their mission again.
 
