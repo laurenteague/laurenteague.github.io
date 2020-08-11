@@ -83,7 +83,7 @@ Lulu nodded in modest victory.
 
 Lulu nodded. 
 
-"Thats could work—" Paige started just as Felicity said, "That would never work." 
+"That could work—" Paige started just as Felicity said, "That would never work." 
 
 Gwyneth spoke quickly to head off an argument. "It doesn’t matter because Mrs. D said there probably isn’t a mouse anyway. Mr. D just hears one in his sleep."
 
@@ -131,7 +131,7 @@ The others nodded and showed their arm signals.
 
 "I really, really, really want one of those giant headless dolls without any arms or legs!" Lulu called over her shoulder.
 
-The other sisters looked at each other quizzically. 
+The other sisters looked at each other quizzingly. 
 
 "Oh, I think she means a dummy!" Felicity said.
 
@@ -215,7 +215,7 @@ Gwyneth signaled that they should switch spots. She may as well check Lulu’s c
 
 ‘Well, well, well, what have we here?’ she thought to herself as she saw a big jewelry box. A few rays of sunlight lit it up, like a treasure under a spotlight. ‘It’s got to be here!’ She eagerly began to hold each earring, bracelet, and brooch closer to the light, hoping to find Mrs. D’s high school ring.
 
-Meanwhile, Felicity had been keeping herself occupied by looking through the entire wardwobe, then through a pile of old shoes, including a pair of worn jazz shoes, ‘Mrs. D, you were a dancer!’ She thought to herself with a smile. 
+Meanwhile, Felicity had been keeping herself occupied by looking through the entire wardrobe, then through a pile of old shoes, including a pair of worn jazz shoes, ‘Mrs. D, you were a dancer!’ She thought to herself with a smile. 
 
 She noticed a box of dusty record albums. Flipping through the box, she lost of time as she realized she knew many of the songs from ballet class. "Mr. and Mrs. D sure like the classics!" She was so absorbed she didn’t notice Paige or Gwyneth, who were taking turns trying to signal that she needed to get back on task.
 
@@ -318,7 +318,7 @@ Felicity looked at her. "What are you talking about? She was thanking us for com
 
 "But we didn’t!" Gwyneth said. 
 
-Felicity cocked her head quizzingly. "I did, too. I told you, Paige."
+Felicity cocked her head, confused. "I did, too. I told you, Paige."
 
 "You weren’t even looking for it! I’ve never seen you so distracted during a mission. And what do you mean you told me? The only thing you showed me was-" Paige stopped walking.  "Wait. Felicity- are you talking about the charm necklace?" The others stopped walking, too.
 
