@@ -356,7 +356,7 @@ The Secret Agentlinas took the long way home to set the mouse free in the woods.
 
 The anniversary party was a big night for the Dowkins and their family. They invited all their friends, the whole neighborhood, and Mrs. Dowkins proudly wore her high school charm necklace. ("I forgot all about this necklace! I made it during a craft night thirty years ago!")
 
-After an evening of chatting and laughing and a special dance choreographed and performed by the Secret Agentlinas especially for the event, Mrs. Dowkins asked if the girls would like to "go upstairs to the attic and see if anything special catches your eye." She said with a wink. "As your fee." She whispered. "For two missions very well done. Mr. Dowkins doesn’t know that you found the mouse, of course. But if he did, he would be very grateful to you four. He sleeps through the nights again!"
+After an evening of chatting and laughing and a special dance choreographed and performed by the Secret Agentlinas especially for the event, Mrs. Dowkins asked if the girls would like to "go upstairs to the attic and see if anything special catches your eye," she said with a wink. She lowered her voice to a whisper. "For your fees for two missions very well done. Mr. Dowkins doesn’t know that you found the mouse, of course. But if he did, he would be very grateful to you four. He sleeps through the nights again!"
 
 When the Nelson family walked back to their house at the end of the evening, Felicity cradled an old jazz album, Gwyneth was wearing a pair of silk elbow gloves, Paige chose the jazz shoes, and Lulu’s parents carried her new (old) dress dummy that had been waiting for years in the wardrobe. 
 
