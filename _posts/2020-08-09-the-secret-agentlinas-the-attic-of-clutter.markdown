@@ -342,7 +342,7 @@ Paige shook her head slowly. "Nope, I thought you wanted to keep it as your fee.
 
 "The records!" Paige said. "That’s why you spent all that time looking at pictures and albums and inside a wardrobe."
 
-"Yeah, I was excited that even though I found it, you told me to keep looking around until the time was up. And it seemed better for the mission to wait for Mr. D to leave to get the mail so he wouldn’t hear us come down. And they have so much cool stuff up there to explore up there." Felicity said.
+"Yeah, I was excited that even though I found it, you told me to keep looking around until the time was up. And it seemed better for the mission to wait for Mr. D to leave to get the mail so he wouldn’t hear us come down. And they have so much cool stuff up there to explore," Felicity said.
 
 Gwyneth laughed, "Except we weren’t exploring- we were still looking for the ring! Oh, well, I guess we got to explore at same time. Oh!" Gwyneth clapped her hands and hopped as she walked. "I just realized that was our first ever double mission! And it was successful! We caught the mouse!"
 
