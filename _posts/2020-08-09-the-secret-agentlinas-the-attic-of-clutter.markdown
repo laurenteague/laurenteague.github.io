@@ -5,7 +5,7 @@ date:   2020-08-09 07:11:57 -0500
 categories: story
 ---
 
-[📚 Download The Printable PDF](/assets/atticofclutter/atticofclutter.pdf){: .btn}
+[📚 Read The Printable Version](/assets/atticofclutter/atticofclutter.pdf){: .btn}
 
 ![](/assets/atticofclutter/01new.png)
 
