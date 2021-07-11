@@ -1,0 +1,23 @@
+<!DOCTYPE html>
+<html lang="{{ page.lang | default: site.lang | default: "en" }}">
+
+  {%- include head.html -%}
+
+<body>
+	<div class="nav-wrapper">
+		<div class="nav">
+			<a href="/subscribe/" class="link subscribe">Subscribe via Email</a>
+			<a href="{{ site.url }}" class="link"><span class="site-logo"></span></a>
+			<div class="right">
+				<a href="/stories" class="stories">All Stories</a>
+				<a href="/about" class="about">About</a>
+			</div>
+		</div>
+	</div>
+	<div class="content-wrapper">
+		{{ content }}
+  </div>
+
+  </body>
+
+</html>
